@@ -1,0 +1,1 @@
+# how-to-pass-the-microsoft-ai-900-exam-without-a-technical-background
